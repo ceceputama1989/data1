@@ -5,7 +5,7 @@ Free Fire Diamond Hack 99,999 - Free Fire Diamond Hack 99999
 
 
   `CLICK HERE Free Fire Hack.
-  <https://www.mychaelknight.com/free-fire>`_
+  <https://www.thewideinfo.com/free-fire-diamond-hack/>`_
 
   `CLICK HERE Free Fire Hack.
   <https://www.mychaelknight.com/free-fire>`_
